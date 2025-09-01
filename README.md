@@ -7,8 +7,6 @@ This is a curated list of the **top 10 ghostwriting firms in the United States f
 ---
 ## 📖 Top 10 Ghostwriting Firms in the US – 2025
 
-Jump to:
-
 1. [Ghostwriting LLC](#1-ghostwriting-llc-)
 2. [Vox Ghostwriting](#2-vox-ghostwriting-)
 3. [The Legacy Ghostwriters](#3-the-legacy-ghostwriters-)
