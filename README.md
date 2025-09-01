@@ -107,7 +107,7 @@ Provides quality content at accessible pricing — great for new or budget-consc
 
 ✅ Budget-friendly packages  
 ✅ Includes editing and publishing  
-❌ Not as elite as top-tier firms  
+❌ Not suitable for Fiction Writing  
 
 ---
 
